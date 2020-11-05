@@ -1,2 +1,0 @@
-# Valeri-Vasilev
-My Project
